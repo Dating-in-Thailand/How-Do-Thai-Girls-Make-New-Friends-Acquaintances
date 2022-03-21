@@ -1,6 +1,6 @@
 ![Some Thai Friends](images/make-thai-friends-4.jpg)
 
-# How Do Thai People Make New Friends & Acquaintances
+# How Do Thai Girls Make New Friends & Acquaintances
 
 You would think that the abundance of Thai girls on online dating sites is a clear indication they find it easy to make friends; and they have lots of friends too.
 
